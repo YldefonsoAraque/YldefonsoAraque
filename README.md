@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YldefonsoAraque
-- 👀 I’m passionate about the world of Computing or it but  ...
+- 👀 I’m passionate about the world of Computing, it but  ...
 - 🌱 I don't have the skills to get into that world, that's why I'm looking for serious pages like this one, that allow me to take ... my first steps in that direction
 - 💞️ I'm looking for support ... from those who are already trained in this area
 - 📫 You can contact me through @YldefonsoAraque
